@@ -20,8 +20,7 @@
 
 
 <p align="center">
-                                                       ＢＲＩＧＨＴＥＲ
-  <p align="center">
+                                                       ＢＲＩＧＨＴＥＲ  <p align="center">
                                                      ▶︎ •၊၊||၊|။||||။‌‌‌‌|• 1:40
     <p align="center">
                                                          ↻ ◁ || ▷ ↺
