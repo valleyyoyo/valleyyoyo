@@ -1,5 +1,5 @@
 #  
-<img width="735" height="876" alt="image" src="https://github.com/user-attachments/assets/2b220834-d79f-481a-947b-6eb617ce1bc2" />
+<img width="800" height="900" alt="image" src="https://github.com/user-attachments/assets/2b220834-d79f-481a-947b-6eb617ce1bc2" />
 
 
 𝘆𝗼𝘂 𝗰𝗮𝗻 𝗰𝗮𝗹𝗹 𝗺𝗲 𝘃𝗶𝗻𝗰𝗲𝗻𝘁, 𝘃𝗶𝗻𝗰𝗲𝘆, 𝘃𝗶𝗻𝗰𝗲(𝗼𝗿 𝗲𝘅𝘁𝗿𝗮 𝗻𝗶𝗰𝗸𝗻𝗮𝗺𝗲𝘀 𝗶𝗱𝗰 ^^)
